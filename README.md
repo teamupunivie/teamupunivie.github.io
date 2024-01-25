@@ -1,6 +1,6 @@
 # PRIVACY POLICY
 
-Last updated March 20, 2023
+Last updated January 25, 2024
 
 
 
